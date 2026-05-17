@@ -1,4 +1,4 @@
-
+Automático NordVPN Plugin | otimização para streaming + servidores de alta velocidade é o melhor NordVPN plugin com otimização para streaming e servidores de alta velocidade.
 
 
 
